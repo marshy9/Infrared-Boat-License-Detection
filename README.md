@@ -1,0 +1,7 @@
+![screenshot](/Undergrad_Research_Paper/1710749836458-641efbb3-d4ef-4968-b6a7-a8c6916306b9_1.jpg)
+![screenshot](/Undergrad_Research_Paper/1710749836458-641efbb3-d4ef-4968-b6a7-a8c6916306b9_2.jpg)
+![screenshot](/Undergrad_Research_Paper/1710749836458-641efbb3-d4ef-4968-b6a7-a8c6916306b9_3.jpg)
+![screenshot](/Undergrad_Research_Paper/1710749836458-641efbb3-d4ef-4968-b6a7-a8c6916306b9_4.jpg)
+![screenshot](/Undergrad_Research_Paper/1710749836458-641efbb3-d4ef-4968-b6a7-a8c6916306b9_5.jpg)
+![screenshot](/Undergrad_Research_Paper/1710749836458-641efbb3-d4ef-4968-b6a7-a8c6916306b9_6.jpg)
+![screenshot](/Undergrad_Research_Paper/1710749836458-641efbb3-d4ef-4968-b6a7-a8c6916306b9_7.jpg)
